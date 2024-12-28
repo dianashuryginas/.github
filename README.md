@@ -32,5 +32,6 @@ Every day brings moments that inspire growth and open new horizons. Every opport
 - [Gravatar](https://gravatar.com/dianashuryginas)
 - [Vimeo](https://vimeo.com/dianashuryginas)
 - [Snapchat](https://www.snapchat.com/add/diana_kim4120)
+- [Yandex](https://yandex.com/profile/125917401682)
 
 ### Inspiring. Motivating. Growing. 🚀
