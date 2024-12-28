@@ -27,8 +27,10 @@ Every day brings moments that inspire growth and open new horizons. Every opport
 - [My Threads](https://www.threads.net/@diana_shlianina.s)
 - [Threads Life](https://www.threads.net/@diana_s_life2)
 - [Boosty](https://boosty.to/dianashurygina)
+- [Fansly](https://fansly.com/shurygina/posts)
 - [Patreon](https://www.patreon.com/c/dianashurygina)
 - [Gravatar](https://gravatar.com/dianashuryginas)
 - [Vimeo](https://vimeo.com/dianashuryginas)
+- [Snapchat](https://www.snapchat.com/add/diana_kim4120)
 
 ### Inspiring. Motivating. Growing. 🚀
